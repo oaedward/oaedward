@@ -14,6 +14,8 @@ Here are some ideas to get you started:
 - 📫 How to reach me: on my socials or +233 55 175 7842
 - ⚡ Fun fact, I'm a Clinical Engineer
 
+## 💰 You can help me by Donating
+[![BuyMeACoffee](https://img.shields.io/badge/Buy%20Me%20a%20Coffee-ffdd00?style=for-the-badge&logo=buy-me-a-coffee&logoColor=black)](https://buymeacoffee.com/https://buymeacoffee.com/oaedward) 
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/eddnedd_) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/ing-edward-opoku-agyemang-pe-ghie-1b406b75) [![Reddit](https://img.shields.io/badge/Reddit-%23FF4500.svg?logo=Reddit&logoColor=white)](https://reddit.com/user/Aromatic-Recipe-6580) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/codewithedward) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@edwardopokuagyeamang) 
